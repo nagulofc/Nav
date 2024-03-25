@@ -1,1 +1,1 @@
-https://nagulofc.github.io/Travel/Nav
+https://nagulofc.github.io/Nav
